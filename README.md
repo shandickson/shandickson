@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @shandickson
+- 👀 I’m interested in quantiative psychology, measurement, and psychopathology research.
+- 🌱 I’m currently studying Methodology & Statistics at Utrecht University.
+- 📫 You can reach me via mail: shannonsdickson@gmail.com
